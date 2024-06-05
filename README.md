@@ -12,9 +12,9 @@
 # V 1.0.0.0 **5 Juni 2024**) WORK! ✔️✔️
 <p align="center">
     <a>
-        <img src="https://telegra.ph/file/9a0918ad39ddc8efd986e.png">
+        <img src="https://telegra.ph/file/2e77aadc097b4bd83e59d.jpg">
     </a><br>
-    Target: <b>Provider IM3</b> 
+    MEMEK: <b>JOIN EXPLORATOR?</b> 
 </p>
 <br>
 
