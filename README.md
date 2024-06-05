@@ -9,7 +9,7 @@
 <br>
 
 
-# v.1.0.9 (**3 November 2023**) WORK! ✔️✔️
+# V 1.0.0.0 **5 Juni 2024**) WORK! ✔️✔️
 <p align="center">
     <a>
         <img src="https://telegra.ph/file/9a0918ad39ddc8efd986e.png">
